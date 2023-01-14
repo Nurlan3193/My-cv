@@ -1,2 +1,2 @@
 # CV
-hhttps://nurlan3193.github.io/My-cv/
+https://nurlan3193.github.io/My-cv/
